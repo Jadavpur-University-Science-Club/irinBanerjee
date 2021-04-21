@@ -1,1 +1,1 @@
-# STROKE OF INSIGHT Registration :Chapter 5
+# STROKE OF INSIGHT Registration :Chapter 6
